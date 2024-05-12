@@ -16,4 +16,4 @@ Venho compartilhar com todos nosso trabalho para ajudar na identificação de pe
 
 ---
 
-Contato: [seuemail@example.com](mailto:seuemail@example.com)
+Contato: https://www.linkedin.com/posts/thiago-garcia-joao-69180769_sosabrrs-activity-7195192603435294720-Y17s?utm_source=share&utm_medium=member_desktop
